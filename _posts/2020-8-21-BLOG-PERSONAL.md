@@ -23,5 +23,17 @@ Vengo de una familia humilde  en la cual siempre me han dado los valores necesar
 
 # TEMAS DE INTERESES
 
+## LIBRERIAS
+
+Cuando  me presentaron lo que son las librerias  me gustaron demsiado al saber que dentro de los diferentes tipos de librerias encontrabamos lo que era las desiciones del programa o de los diferentes tipos de programas que existen.
+
+
+##  PROGRAMAR ALGORITMOS
+
+En este caso lo  que es programar el diferentes tipos de algoritmos para  poder realizar instrucciones logicas  bien definidas del cuall dan pasos a creaciones de algoritmos complejos y especificos a los trabajos que se estan de nuestras materias.
+
+##  LARGO CAMPO DE DIFERENTES TIPOS DE LENGUAJE DE PROGRAMACION
+
+Existen  varios tipos de lengujaes de programacion del cual son de amplio aspectos de conocimientos en los culaes se aprenderan con el pasar de l ambito de estudio eso me llamo mucho la atencion  y me dio una curiosidad grande por el cual mi interes aumenta, el deseo de saber y aprender.
 
 
